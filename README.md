@@ -1,0 +1,1 @@
+# Script-for-diablo2-resurrected
